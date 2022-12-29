@@ -1,1 +1,1 @@
-# Greetings visitor! I'm DAVITHEC! Enjoy my repositories follow and put a star for more codes!
+# Greetings visitors! I'm DAVITHEC! Enjoy mine repositories follow me and put a star for more codes!
